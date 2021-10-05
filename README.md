@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Buillaume
 - 👀 I’m interested in causality
 - 🌱 I’m currently learning piano
-- 💞️ I’m looking to collaborate on nothing
+- 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me telepathy 
 
 <!---
