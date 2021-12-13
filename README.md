@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Buillaume
 - 👀 I’m interested in causality
-- 🌱 I’m currently learning piano
+- 🌱 I’m currently to walk
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me telepathy 
 
